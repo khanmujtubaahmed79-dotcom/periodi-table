@@ -1,1 +1,0 @@
-# periodi-table
